@@ -8,3 +8,9 @@ Jk dont get offended
 
 
 Welcome to Test Repo(Although nobody know's its existence)
+
+Wassup My Homies
+
+Ogenki Desuka
+
+Suzume
